@@ -1,2 +1,2 @@
 # henrry
-nuevo de aprender
+nuevo de aprender neuvsoos
